@@ -50,5 +50,5 @@ We reserve the right, at our sole discretion, to modify or replace these Terms a
 
 ## 5. Contact Us
 
-If you have any questions about these Terms, please contact us at the Law Office of Robert D. Leonhard.
+If you have any questions about these Terms, please contact us at openlawesq@gmail.com.
 
